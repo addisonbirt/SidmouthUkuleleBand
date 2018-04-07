@@ -1,2 +1,0 @@
-# SidmouthUkuleleBand
-GitHub Pages
